@@ -1,5 +1,0 @@
-##Hisoria de flash
-The Flash es una próxima película estadounidense de superhéroes basada en el personaje homónimo de DC Comics.
-Producida por DC Studios, The Disco Factory y Double Dream y distribuida por Warner Bros. Pictures, pretende ser la decimotercera película del Universo extendido de DC (DCEU). 
-La película está dirigida por Andy Muschietti a partir de un guion de Christina Hodson y 
-está protagonizada por Ezra Miller como Barry Allen / Flash, junto a Ron Livingston, Michael Keaton, Kiersey Clemons, Michael Shannon, Antje Traue, Sasha Calle y Ben Affleck
